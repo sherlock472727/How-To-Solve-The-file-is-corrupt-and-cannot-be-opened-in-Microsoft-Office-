@@ -1,0 +1,1 @@
+# How-To-Solve-The-file-is-corrupt-and-cannot-be-opened-in-Microsoft-Office-
